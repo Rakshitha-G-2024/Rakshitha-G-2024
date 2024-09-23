@@ -1,6 +1,6 @@
 
 # 💫 About Me:
-Engineering Student 
+Engineering Student , 
 you can reach me rakshu.saru28@gmail.com
 
 ## 🌐 Socials:
