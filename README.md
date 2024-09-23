@@ -1,7 +1,7 @@
 
 # 💫 About Me:
 Engineering Student 
-
+you can reach me rakshu.saru28@gmail.com
 
 ## 🌐 Socials:
 [![LinkedIn](https://img.shields.io/badge/LinkedIn-%230077B5.svg?logo=linkedin&logoColor=white)](https://linkedin.com/in/Rakshitha G) [![YouTube](https://img.shields.io/badge/YouTube-%23FF0000.svg?logo=YouTube&logoColor=white)](https://youtube.com/@Nammane aduge Chayashekhar) 
